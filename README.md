@@ -1,4 +1,4 @@
-ˢᵗᵃʳ!" ・。 ・゜+. ・。 ・゜+.  ⋆˚ ༘ *  . Welcome, one and all! I'm Cleo! Thank you for coming!
+ˢᵗᵃʳ!" ・。 ・゜+. ・。 ・゜+.  ⋆˚ ༘ *  . Welcome, one and all! I'm Ruze / Cleo! Thank you for coming!
 Any pronouns!!! I don’t mind! ☆ﾟ°˖ ᕕ( ᐛ )ᕗ彡°.彡*° under 18!!. .ⁿ
 3/6  * ˚ ✦ Asexual  . ─── ･ ｡ﾟ☆: .☽ ─── ･ ｡ﾟ☆
 ' ' it seems the stars have aligned . . Let’s go stargazing.! ". . ' '.      
@@ -9,7 +9,7 @@ basic dni criteria…. (racists, sexist etc… basically don't be a weirdo..(＞
 ' ' ᵀᵒ ᵇᵉ ᶜʰᵒˢᵉⁿ ᵇʸ ᵗʰᵉ ᵃᵘᵈⁱᵉⁿᶜᵉ, ⁱᵗ ʰᵃˢ ᵗᵒ ᵇᵉ ˢᵒᵐᵉᵗʰⁱⁿᵍ ᵗʰᵃᵗ'ˢ ˢʰᵒʷʸ, ᵐᵉᵐᵒʳᵃᵇˡᵉ ᵃⁿᵈ ᶠᵘⁿ, ʳⁱᵍʰᵗ! ". .'  
 
 '  ↶ೃ✧˚. ❃ ↷ ˊ- ʟɪᴋᴇꜱ !! ↶ೃ✧˚. ❃ ↷ ˊ- ₊˚ʚ ᗢ₊˚✧ ﾟ. ✦
-NijisanjiEN + NijisanjiJP, Jackson’s Diary [PAOLA UPDATE IT😔], Homestuck [I'm not apart of the 'weird' fans 😭😭]✦ 
+NijisanjiEN + NijisanjiJP, Jackson’s Diary [PAOLA UPDATE IT😔], Homestuck [I'm not apart of the 'weird' fans 😭😭], I have many other interests but i can't think of any else from the top of my head!)✦ 
 
 Games: Muse dash, Cookie run kingdom, Ensemble Stars, Project Sekai, Genshin Impact (I don't even play it LMFAO), Arcana Twilight, Lieat, Alicemare, ANY HORROR INDIE GAME, persona (3 - 5), Deadplate
 
